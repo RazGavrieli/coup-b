@@ -1,3 +1,6 @@
+![Screenshot from 2022-05-06 15-03-28](https://user-images.githubusercontent.com/90526270/167127989-fe71e98d-bf59-4523-ac97-d46122515388.png)
+
+
 <div dir="rtl" lang="he">
 
 # קו - שלב ב
